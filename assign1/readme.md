@@ -6,7 +6,7 @@
 |--------|-|
 |k21-3096|Muhammad Subhan Khurshid|
 |k21-3097|Ruhama Umer Khan|
-|k20-0424|Saim Javed|
+|k20-0424|Saim Javed - SECTION-A (Email has been sent to Sir for confirmation)| 
 
 ## Results and Analysis
 
